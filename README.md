@@ -6,7 +6,7 @@ Email Me 👉 ✉️ **homechoudhuryapex@gmail.com** For Collaboration/Project o
 - 🔭 **I’m currently working on:** Complex Automations
 - 🌱 **I’m currently learning:** Agentic AI
 - 💬 **Ask me about:** Collaboration, Automation Support
-- 📫 **How to reach me:** homechouduhryapex@gmail.com, +91 6900379337
+- 📫 **How to reach me:** homechoudhuryapex@gmail.com, +91 6900379337
 - 😄 **Pronouns:** Apex
 - ⚡ **Fun fact:** I Love Automations
 
